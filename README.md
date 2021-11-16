@@ -9,4 +9,4 @@ I am a developer, analyst and volunteer. I have a passion for learning and tryin
 - 💬 Ask me about my hobbies, I am always trying something new!
 - 📫 How to reach me: graham.jessica338@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: While away from my computer I enjoy making creations in the kitchen, sewing and getting outdoors (walk, hike, bike, garden and swim). 
+- ⚡ Fun fact: While away from my computer I enjoy making creations in the kitchen, sewing, and being outdoors (walk, hike, bike, garden and swim). 
